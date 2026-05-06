@@ -62,4 +62,4 @@ Scripts for data processing, even-average calculations, and mathematical variabl
 * **Clark University** - Fall 2026 Applicant (Presidential Scholarship Candidate)
 
 ---
-[gutateshome417@gmail.com] | [@GUTA_TK580]
+[Email Me](gutateshome417@gmail.com) | [Connect on LinkedIn](https://www.linkedin.com/in/GUTA TESHOME KEBEDE)
